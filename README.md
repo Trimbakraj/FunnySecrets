@@ -1,1 +1,1 @@
-# FunnySecreats
+# FunnySecrets
